@@ -1,0 +1,1 @@
+# auto-fork-genshin-impact-related-repo
